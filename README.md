@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-<img src="![Берсерк](https://github.com/user-attachments/assets/d621415f-9e07-4488-8dde-10d640af70ea)" alt="The Unlimited" width="600">
+<img src="https://media1.tenor.com/m/f8G3Sf79TykAAAAd/berserk.gif" alt="The Unlimited" width="600">
